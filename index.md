@@ -1,4 +1,4 @@
-# Here Be No Monsters
+
 > a polemic blog against the monsterless world of 'The Danger of a Single Story'
 
 ## Post 1
